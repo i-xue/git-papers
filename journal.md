@@ -1,4 +1,4 @@
-Hey, we've got a sandwich
+Hey, we've got a hot dog
 
 By: unknown
 
